@@ -1,4 +1,8 @@
-⋆˖⁺‧₊☽◯☾₊‧⁺˖⋆
+₊˚꒰💜꒱‧[𝐏𝐇𝐎𝐄𝐍𝐈𝐗]‧₊ ᵎᵎ 🎡 ‧[𝚊𝚗𝚢/𝚊𝚕𝚕 𝚙𝚛𝚗𝚜]‧₊ ᵎᵎ 👁️‍🗨️ ‧[𝙴𝚂𝚃/𝙴𝙳𝚃]‧₊ ᵎᵎ 🔪
+
+
+![TEENSY TINY pagedoll](https://github.com/user-attachments/assets/e77c1b7a-f004-4dc0-a152-023c6e5935e3)
+
 
 -- i'm phoenix but you can call me whatever! especially the character i'm cosplaying :D
 
