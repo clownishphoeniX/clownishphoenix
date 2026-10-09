@@ -2,7 +2,7 @@
 
 
 
-phoenix / dusk | any / all prns | adult
+phoenix / dusk | it / any prns | adult
 
 ![TEENSY TINY pagedoll](https://github.com/user-attachments/assets/de03a715-592d-44c0-bd6b-2998b951bc6c)
 
